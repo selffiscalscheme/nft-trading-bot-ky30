@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft trading bot with custom nft trading bot | auto-buy + royalty-calculator. Featuring auto-buy and royalty-calculator, it's the best choice for automated NFT
 
 
 
